@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Steamy
+- 👀 I’m interested in just about anything
+- 🌱 I’m currently learning CSS and blender
+- 💞️ I’m looking to collaborate on nothing
+- 📫 How to reach me Steamy#5426 on discord
